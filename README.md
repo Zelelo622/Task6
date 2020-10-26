@@ -1,0 +1,1 @@
+![num3](https://github.com/Zelelo622/Task6/blob/main/pictures/num3.png)
